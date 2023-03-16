@@ -1,4 +1,4 @@
-👏🏼 Hi,This is Asher's github, hope you can find you want.
+👏🏼 Here is Asher's GitHub, I hope you can find what you're looking for.
 
 Blog: www.runnable.run
 
